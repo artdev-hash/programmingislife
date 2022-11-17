@@ -1,1 +1,5 @@
-# programmingislife
+# **PROGRAMMING IS LIFE**
+
+ LIST OF THINGS ABOUT PROGRAMMING AND MEME'S
+ 
+ updating......
